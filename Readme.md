@@ -42,8 +42,15 @@ Shake and pour in glass.
 
 
 ##Spicy Moscow Mule
-* 2 oz Vodka
+* 2oz Vodka
 * 6oz Ginger ale (Hot Blenheims or WBC Spicy Ginger)
 * Squeeze of lime
 
 Mix ingrediences, pour over ice
+
+##Vikre Spruce Rudy Tonic
+* 2oz Vikre Spruce Gin
+* 3/4oz Rudy Tonic
+* 5oz Soda Water
+
+Mix, pour over ice.
