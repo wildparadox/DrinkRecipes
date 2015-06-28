@@ -62,5 +62,5 @@ Mix, pour over ice.
 * 1 bottle of your favorite dark lager
 
 -Mix all ingredients minus the lager in an Imperial pint glass.  
--Add desired amount of ice.
+-Add desired amount of ice.  
 -Fill glass the rest of the way with lager. Stir. Drink.
