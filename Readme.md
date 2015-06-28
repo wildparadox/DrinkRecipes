@@ -54,3 +54,13 @@ Mix ingrediences, pour over ice
 * 5oz Soda Water
 
 Mix, pour over ice.
+
+##Dark Lager and Rum Beermosa
+* 2 1/2oz Kracken Spiced Rum
+* 2 tsp Ginger
+* 1oz lime.
+* 1 bottle of your favorite dark lager
+
+-Mix all ingredients minus the lager in an Imperial pint glass.  
+-Add desired amount of ice.
+-Fill glass the rest of the way with lager. Stir. Drink.
